@@ -80,7 +80,13 @@
 > **Con cebolla**, porque le da mucho mas sabor.
 >> Ana Liqing Sánchez Castellano
 
+
+
+
 <br>
+
+> Me gusta de ambas formas, pero la prefiero **con cebolla**
+>> Alma Gavilán Velasco 
 
 **En resumen:**
 Gana por goleeeada **8 a 3** la cebolla que no la patata!
