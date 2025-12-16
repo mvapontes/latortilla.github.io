@@ -88,3 +88,9 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 <br>
 
 > A la vuelta con la tortilla, pero esta vez la muestra es más grande. Qué opinais curso 25/26 con o sin cebolla?
+
+
+<br>
+
+>La tortilla **siempre** con cebolla. ¡Le da mucho más *sabor*!
+>> Ainhoa Romero
