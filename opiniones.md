@@ -22,6 +22,15 @@
 
 <br>
 
+> La mejor tortilla es la de Betanzos, **sin cebolla** y poco hecha.
+> Os dejo la receta por aquí [Tortilla de Betanzos](https://www.directoalpaladar.com/recetas-de-huevos-y-tortillas/tortilla-al-estilo-betanzos-receta-casera-este-gran-clasico-cocina-gallega)
+> 
+> Ya sabéis con qué sobornarme para que os suba la nota.
+> 
+>> Adrián Pérez Rial
+
+<br>
+
 > Yo siempre con cebolla, la mejor la de mi madre!!!
 >> Laura Ferrer 
 
@@ -93,3 +102,18 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 
 > No me importa **con cebolla** o **sin cebolla**, mientras que la tortilla este en el punto que me gusta!
 >> Andrea Ponce Pomares
+
+<br>
+
+> Siempre **sin cebolla**
+>> Andrea Torres Philpott
+
+<br>
+<br>
+
+> Propongo suspender al alumnado que vote :
+>   1. sin cebolla
+>   2. con gambas
+>   3. sin cebolla y que abran ficheros *.csv* con **Excel**
+>> Jose V. Die
+
