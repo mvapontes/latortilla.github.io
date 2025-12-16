@@ -91,6 +91,11 @@
 
 <br>
 
+> **Tortilla de patatas con cebolla**. Objetivamente es la mejor opción, sin opción a duda, la cebolla aporta **aromas**, ***textura*** y un sabor *dulce* que constrasta perfectamente con el *amargo* de la patata. Si te gusta comer cosas simples y llanas, la opción sin cebolla es para tí, si lo tuyo son los sabores complejos la tortilla con cebolla es la mejor opción. Ya hablaremos del punto de la cebolla en otro momento.
+>> Manuel Jesús Méndez Bautista
+
+<br>
+
 **En resumen:**
 Gana por goleeeada **8 a 3** la cebolla que no la patata!
 
