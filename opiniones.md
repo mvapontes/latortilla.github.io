@@ -100,6 +100,11 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 
 <br>
 
+> La cebolla marca una gran diferencia en el sabor de la tortilla. ¡Es mucho mejor!
+>> Lucía Güeto Cantero
+
+<br>
+
 > Yo prefiero la tortilla **con cebolla**, la tortilla sin cebolla deberia ser delito.
 >> Leo Alza Blanco
 
