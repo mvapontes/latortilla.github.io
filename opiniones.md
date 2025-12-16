@@ -72,6 +72,11 @@
 
 <br>
 
+> La tortilla ***siempre*** con cebolla, ¡y si es caramelizada mejor! 🧅
+>> Cristina Gómez Baena
+
+<br>
+
 > En mi opinión la tortilla es mejor **con cebolla**, sin cebolla creo que está más sosa.
 >> Ana León Miranda
 
