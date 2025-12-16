@@ -100,6 +100,11 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 
 <br>
 
+> No me importa **con cebolla** o **sin cebolla**, mientras que la tortilla este en el punto que me gusta!
+>> Andrea Ponce Pomares
+
+<br>
+
 > Siempre **sin cebolla**
 >> Andrea Torres Philpott
 
