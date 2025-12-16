@@ -66,6 +66,11 @@
 >> MJose Zamorano
 
 <br>
+> A estas horas y con hambre me comería la tortilla que fuera 😋 pero, como amante de la cebolla que soy, **obviamente team cebolla** y que esté hecha, por favor :D.
+>> Reyes Mª Jurado Jiménez 
+
+
+<br>
 
 > Prefiero la tortilla **con cebolla** porque le da un sabor único.
 >> Abril García Luque
