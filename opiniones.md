@@ -182,7 +182,7 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 
 <br> 
 
-> Empezamos curso 26/27
+> Empezamos un nuevo curso 26/27
 >> MVAP
 
 <br>
