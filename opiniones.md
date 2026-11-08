@@ -178,3 +178,11 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >   3. sin cebolla y que abran ficheros *.csv* con **Excel**
 >> Jose V. Die
 
+<br>
+
+<br> 
+
+> Empezamos curso 26/27
+>> MVAP
+
+<br>
