@@ -186,3 +186,10 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >> MVAP
 
 <br>
+
+<br> 
+
+> La tortilla está uena con o sin cebolla, **lo que no puede faltar es Mayonesa**.
+>> Mario Gutiérrez Ruiz
+
+<br>
