@@ -186,3 +186,8 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >> MVAP
 
 <br>
+
+> Prefiero la tortilla *sin cebolla* y **MUY HECHA** :) (perdón)
+>> Lucía Domínguez Chamizo
+
+<br>
