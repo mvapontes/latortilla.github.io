@@ -182,7 +182,14 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 
 <br> 
 
+
+
 > Empezamos un nuevo curso 26/27
 >> MVAP
 
 <br>
+
+> Me da bastante igual si tiene cebolla o no, **viva la comida**.
+
+> Álvaro Morillo Baena
+
