@@ -178,6 +178,8 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >   3. sin cebolla y que abran ficheros *.csv* con **Excel**
 >> Jose V. Die
 
+No me gusta la tortilla de patata por lo que no puedo debatir
+Pascual Álvarez
 <br>
 
 <br> 
