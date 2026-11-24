@@ -179,10 +179,15 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >> Jose V. Die
 
 <br>
+<br>
 
-<br> 
 
 > Empezamos un nuevo curso 26/27
 >> MVAP
+
+<br>
+
+>   Mi abuela la hace sin cebolla y mi madre con cebolla. Yo prefiero con cebolla pero las dos están buenas.
+>> Marta Pedraza Ramírez
 
 <br>
