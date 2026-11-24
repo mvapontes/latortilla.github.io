@@ -1,5 +1,4 @@
-No me gusta la torilla ni con cebolla ni sin cebolla. 
-María Mateos Guerra
+
 
 > [!NOTE]
 > Utiliza markdown para dar estilo a tu texto.
@@ -187,3 +186,6 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >> MVAP
 
 <br>
+
+> No me gusta la torilla ni con cebolla ni sin cebolla. 
+>> María Mateos Guerra
