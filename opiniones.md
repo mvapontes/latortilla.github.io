@@ -189,11 +189,22 @@ Antonio Luna
 
 <br>
 
+> Prefiero la tortilla *sin cebolla* y **MUY HECHA** :) (perdón)
+>> Lucía Domínguez Chamizo
 >Este es mi segundo comentario, opino igual :p
 >> Alvaro Morillo Baena
 >> Las **patatas fritas** son el mejor invento del ser humano
 
 > Sin cebolla mejor, pero si lleva poca y está hecha lo **soportaré**, eso sí, la tortila en su punto, como *la suela de un zapato* **NO**
 >> Sofía Ibarra Andreu
+
+> La tortilla con **cebolla** muchísima, y sin cuajar, pa eso está paco.
+> > José María
+
+<br>
+
+<br>
+>Existen dos tipos de persona en este mundo: Las que les gusta la tortilla con cebolla y las que quieren ver el mundo arder.
+>> Miguel Prior Membrives
 
 <br>
