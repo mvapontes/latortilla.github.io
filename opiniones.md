@@ -188,4 +188,7 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 <br>
 
 > Sinceramente, prefiero la tortilla **con cebolla**, le da más sabor y está más jugosa.
->>Lucía Bolívar Pérez
+>> Lucía Bolívar Pérez
+
+> Sigo pensando que la tortilla con cebolla es god 
+>> Lucia Bolivar Perez
