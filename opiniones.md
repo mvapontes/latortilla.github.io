@@ -189,7 +189,14 @@ Antonio Luna
 
 <br>
 
+
 > Sin cebolla mejor, pero si lleva poca y está hecha lo **soportaré**, eso sí, la tortila en su punto, como *la suela de un zapato* **NO**
 >> Sofía Ibarra Andreu
+
+<br>
+
+<br>
+>Existen dos tipos de persona en este mundo: Las que les gusta la tortilla con cebolla y las que quieren ver el mundo arder.
+>> Miguel Prior Membrives
 
 <br>
