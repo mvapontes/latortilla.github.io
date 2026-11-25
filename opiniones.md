@@ -180,6 +180,9 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 
 <br>
 
+> Buscamos conflictos, pero solo en GitHub
+>> MVAP
+> 
 <br> 
 
 > Empezamos un nuevo curso 26/27
