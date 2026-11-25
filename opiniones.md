@@ -177,7 +177,8 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >   2. con gambas
 >   3. sin cebolla y que abran ficheros *.csv* con **Excel**
 >> Jose V. Die
-
+ç
+No me gusta la tortilla de patata.Pero si es tortilla de patata no puede llevar cebolla.
 <br>
 
 <br> 
