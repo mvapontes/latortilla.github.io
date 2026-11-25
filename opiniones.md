@@ -203,5 +203,5 @@ Antonio Luna
 
 <br>
 
->Prefiero con cebolla y que esté en su punto.
+>Prefiero con cebolla y que esté en su punto si no, no está igual.
 >> María Torres F
