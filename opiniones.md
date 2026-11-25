@@ -193,3 +193,8 @@ Antonio Luna
 >> Sofía Ibarra Andreu
 
 <br>
+
+> la hebilla de un cinturon como en la postguerra. aurilla
+>
+>>  Salvador isnard
+
