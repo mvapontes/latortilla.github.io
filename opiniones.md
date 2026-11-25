@@ -187,7 +187,7 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 
 <br>
 
-> Me gusta con y sin cebolla
+> Me gusta con o sin cebolla
 >> María Pérez-Borbujo
 
 <br>
