@@ -180,6 +180,9 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 
 <br>
 <br> 
+Yo soy mas de un big mac con patatas y cocacola
+y un muñeco de los minions
+Antonio Luna
 
 > Empezamos un nuevo curso 26/27
 >> MVAP
