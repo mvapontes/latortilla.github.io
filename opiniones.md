@@ -186,3 +186,10 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >> MVAP
 
 <br>
+
+> La tortilla siempre mejor ***sin cebolla*** y bastante hecha
+> , y sigo pensando  **I G U A L**
+>> Pablo Luque López
+
+
+<br>
