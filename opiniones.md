@@ -189,6 +189,10 @@ Antonio Luna
 
 <br>
 
+> La tortilla siempre sin cebolla. Otra cosa distinta a eso atenta al sentido comun y no deberia de ser una opinion valida.
+> 
+> Sigo opinando lo mismo que antes, la tortilla **SIN CEBOLLA**
+>> David Clapés Gámez
 > Prefiero la tortilla *sin cebolla* y **MUY HECHA** :) (perdón)
 >> Lucía Domínguez Chamizo
 >Este es mi segundo comentario, opino igual :p
