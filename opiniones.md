@@ -186,3 +186,10 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >> MVAP
 
 <br>
+
+> La tortilla siempre sin cebolla. Otra cosa distinta a eso atenta al sentido comun y no deberia de ser una opinion valida.
+> 
+> Sigo opinando lo mismo que antes, la tortilla **SIN CEBOLLA**
+>> David Clapés Gámez
+
+<br>
