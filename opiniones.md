@@ -179,8 +179,10 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >> Jose V. Die
 
 <br>
-
 <br> 
+Yo soy mas de un big mac con patatas y cocacola
+y un muñeco de los minions
+Antonio Luna
 
 > Empezamos un nuevo curso 26/27
 >> MVAP
@@ -190,3 +192,7 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >Este es mi segundo comentario, opino igual :p
 >> Alvaro Morillo Baena
 
+> Sin cebolla mejor, pero si lleva poca y está hecha lo **soportaré**, eso sí, la tortila en su punto, como *la suela de un zapato* **NO**
+>> Sofía Ibarra Andreu
+
+<br>
