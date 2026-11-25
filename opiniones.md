@@ -192,4 +192,7 @@ Antonio Luna
 > Sin cebolla mejor, pero si lleva poca y está hecha lo **soportaré**, eso sí, la tortila en su punto, como *la suela de un zapato* **NO**
 >> Sofía Ibarra Andreu
 
+> La tortilla con **cebolla** muchísima, y sin cuajar, pa eso está paco.
+> > José María
+
 <br>
