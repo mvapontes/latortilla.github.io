@@ -179,6 +179,7 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >> Jose V. Die
 ç
 No me gusta la tortilla de patata.Pero si es tortilla de patata no puede llevar cebolla.
+>> Pascual Álvarez
 <br>
 
 <br> 
