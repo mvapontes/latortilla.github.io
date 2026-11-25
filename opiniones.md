@@ -189,6 +189,10 @@ Antonio Luna
 
 <br>
 
+> La tortilla siempre mejor ***sin cebolla*** y bastante hecha
+> , y sigo pensando  **I G U A L**
+>> Pablo Luque López
+
 > Prefiero la tortilla *sin cebolla* y **MUY HECHA** :) (perdón)
 >> Lucía Domínguez Chamizo
 >Este es mi segundo comentario, opino igual :p
