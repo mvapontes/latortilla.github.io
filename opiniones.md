@@ -186,7 +186,7 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 
 <br>
 
-> Sin cebolla mejor, pero si lleva poca y está hecha lo **soportaré**, eso sí, la tortila en su punto, como *la suela de un zapato* **NO**
+> Sin cebolla siempre es mejor, pero si lleva poca y está hecha lo **soportaré**, eso sí, la tortila en su punto, como *la suela de un zapato* **NO**
 >> Sofía Ibarra Andreu
 
 <br>
