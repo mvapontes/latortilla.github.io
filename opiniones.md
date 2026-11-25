@@ -186,3 +186,9 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >> MVAP
 
 <br>
+
+> Lo mejor es la tortilla con **cebolla** le hace tener más sabor :)
+>> María González Martín
+
+> Me paso por aqui otra vez y sigo opinando lo mismo :D
+>> Maria Gonzalez Martin
