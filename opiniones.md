@@ -189,9 +189,29 @@ Antonio Luna
 
 <br>
 
+> Sin cebolla siempre es mejor, pero si lleva poca y está hecha lo **soportaré**, eso sí, la tortila en su punto, como *la suela de un zapato* **NO**
+> Prefiero la tortilla *sin cebolla* y **MUY HECHA** :) (perdón)
+>> Lucía Domínguez Chamizo
+>Este es mi segundo comentario, opino igual :p
+>> Alvaro Morillo Baena
+
 > Sin cebolla mejor, pero si lleva poca y está hecha lo **soportaré**, eso sí, la tortila en su punto, como *la suela de un zapato* **NO**
 >> Sofía Ibarra Andreu
+
+> La tortilla con **cebolla** muchísima, y sin cuajar, pa eso está paco.
+> > José María
+
+<br>
 
 <br>
 
 > La tortillita con cebolla y sin cuajar
+>> Mario Otero García
+
+>Existen dos tipos de persona en este mundo: Las que les gusta la tortilla con cebolla y las que quieren ver el mundo arder.
+>> Miguel Prior Membrives
+
+<br>
+
+>Prefiero con cebolla y que esté en su punto si no, no está igual. Sigo opinando igual
+>> María Torres F
