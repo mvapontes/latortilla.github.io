@@ -204,6 +204,10 @@ Antonio Luna
 <br>
 
 <br>
+
+> La tortillita con cebolla y sin cuajar
+>> Mario Otero García
+
 >Existen dos tipos de persona en este mundo: Las que les gusta la tortilla con cebolla y las que quieren ver el mundo arder.
 >> Miguel Prior Membrives
 
