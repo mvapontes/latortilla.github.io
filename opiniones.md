@@ -193,6 +193,7 @@ Antonio Luna
 
 <br>
 
+> Sin cebolla siempre es mejor, pero si lleva poca y está hecha lo **soportaré**, eso sí, la tortila en su punto, como *la suela de un zapato* **NO**
 > Prefiero la tortilla *sin cebolla* y **MUY HECHA** :) (perdón)
 >> Lucía Domínguez Chamizo
 >Este es mi segundo comentario, opino igual :p
