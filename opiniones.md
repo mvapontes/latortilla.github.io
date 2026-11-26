@@ -179,6 +179,10 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >> Jose V. Die
 
 <br>
+
+> Buscamos conflictos, pero solo en GitHub
+>> MVAP
+> 
 <br> 
 Yo soy mas de un big mac con patatas y cocacola
 y un muñeco de los minions
