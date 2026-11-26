@@ -203,7 +203,11 @@ Antonio Luna
 
 <br>
 
+> La que pone los huevos pero metida en un pan de pita
+>> Jorge Pérez Soriano
+
 <br>
+
 >Existen dos tipos de persona en este mundo: Las que les gusta la tortilla con cebolla y las que quieren ver el mundo arder.
 >> Miguel Prior Membrives
 
