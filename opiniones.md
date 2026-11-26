@@ -200,6 +200,10 @@ Antonio Luna
 
 > La tortilla con **cebolla** muchísima, y sin cuajar, pa eso está paco.
 > > José María
+> >
+
+
+> 
 
 <br>
 
@@ -207,6 +211,9 @@ Antonio Luna
 >Existen dos tipos de persona en este mundo: Las que les gusta la tortilla con cebolla y las que quieren ver el mundo arder.
 >> Miguel Prior Membrives
 
+
+ No me gusta la tortilla asi que no puedo opinar.**Sin cebolla siempre**
+ Pascual Álvarez
 <br>
 
 >Prefiero con cebolla y que esté en su punto si no, no está igual. Sigo opinando igual
