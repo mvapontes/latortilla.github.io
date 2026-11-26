@@ -29,6 +29,10 @@
 > 
 >> Adrián Pérez Rial
 
+
+>No hay nada mas castizo que una tortilla de patatas con cebollas . La patata  traida de America junto a la cebolla , procedente de asia ,es la conjuncion perfecta de la cultura española en un solo plato . Y poquito hecha . Saborear España en un bocado
+>>Jose Manuel Marente Mesa
+
 <br>
 
 > Yo siempre con cebolla, la mejor la de mi madre!!!
