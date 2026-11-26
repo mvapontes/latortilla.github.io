@@ -179,6 +179,8 @@ Gana por goleeeada **8 a 3** la cebolla que no la patata!
 >> Jose V. Die
 
 <br>
+<br>
+
 <br> 
 Yo soy mas de un big mac con patatas y cocacola
 y un muñeco de los minions
@@ -189,6 +191,10 @@ Antonio Luna
 
 <br>
 
+>   Mi abuela la hace sin cebolla y mi madre con cebolla. Yo prefiero con cebolla pero las dos están buenas.
+>> Marta Pedraza Ramírez
+
+<br>
 > Sin cebolla siempre es mejor, pero si lleva poca y está hecha lo **soportaré**, eso sí, la tortila en su punto, como *la suela de un zapato* **NO**
 > Prefiero la tortilla *sin cebolla* y **MUY HECHA** :) (perdón)
 >> Lucía Domínguez Chamizo
