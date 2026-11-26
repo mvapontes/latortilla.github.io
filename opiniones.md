@@ -194,5 +194,5 @@ Antonio Luna
 
 <br>
 
-> Panqueque de base de pure de papa simepre sin cebolla
+> Panqueque de base de pure de papa simepre sin cebolla!!
 > Alvaro
