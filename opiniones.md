@@ -199,7 +199,7 @@ Antonio Luna
 
 > La tortilla con **cebolla** muchísima, y sin cuajar, pa eso está paco.
 > > José María
-
+> La tortilla o te la bebes con pajita o no sirve de nada. De postre un chupetín de frutisha.
 <br>
 
 <br>
