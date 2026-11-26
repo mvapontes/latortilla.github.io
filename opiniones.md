@@ -193,6 +193,7 @@ Antonio Luna
 >> Lucía Domínguez Chamizo
 >Este es mi segundo comentario, opino igual :p
 >> Alvaro Morillo Baena
+>> Las **patatas fritas** son el mejor invento del ser humano
 
 > Sin cebolla mejor, pero si lleva poca y está hecha lo **soportaré**, eso sí, la tortila en su punto, como *la suela de un zapato* **NO**
 >> Sofía Ibarra Andreu
