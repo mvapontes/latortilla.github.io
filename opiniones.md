@@ -204,6 +204,9 @@ Antonio Luna
 <br>
 
 <br>
+
+> ¿Y una tortilla con jamón ibérico? **de locos**
+>>Elena Montero
 >Existen dos tipos de persona en este mundo: Las que les gusta la tortilla con cebolla y las que quieren ver el mundo arder.
 >> Miguel Prior Membrives
 
