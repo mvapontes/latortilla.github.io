@@ -187,6 +187,8 @@ Antonio Luna
 > Empezamos un nuevo curso 26/27
 >> MVAP
 
+> Lo mejor es la tortilla con cebolla y que esté hecha, pero no mucho.
+>> Ángela Junco
 
 <br>
 
